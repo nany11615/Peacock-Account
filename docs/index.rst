@@ -1,5 +1,5 @@
 How to Login to Your Peacock TV Account?
-  ================================
+================================
 
 Peacock TV is an increasingly popular streaming service offering a wide range of entertainment, including movies, TV shows, exclusive original programming, and live sports. In order to enjoy this extensive content library, you need to log into your Peacock TV account. Whether you’re accessing Peacock TV on your computer, smartphone, tablet, smart TV, or streaming device, the login process is simple and straightforward. This article will walk you through the necessary steps to log into your Peacock TV account, as well as provide tips for troubleshooting common login issues.
 
